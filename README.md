@@ -1,0 +1,1 @@
+Öklit projem kodluyoruzzz
